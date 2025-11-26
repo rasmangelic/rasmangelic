@@ -1,16 +1,17 @@
-## Hi there 👋
-
-<!--
-**rasmangelic/rasmangelic** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+<img src="https://files.catbox.moe/ogkqqe.gif" width="20">  So please, please, please let me get what i want  <img src="https://files.catbox.moe/ogkqqe.gif" width="20">  </br>
+  ݁ ⊹ㅤ˖ Lord knows it would be the first time. ˖ㅤ⊹ ݁
+<p align="center">
+<img src="https://files.catbox.moe/3c2hf8.gif" width="400">  </br>
+<img src="https://files.catbox.moe/jme0ox.gif" width="400"> </br>
+<img src="https://files.catbox.moe/x5wwum.gif">
+<img src="https://files.catbox.moe/ky99h5.png">
+<img src="https://files.catbox.moe/o3pj6s.gif">
+</br>
+ <br><br>
+𝄞  ݁˖ ‹ㅤCall me Vanit or Shor  ݁˖  </br>
+</br>
+they / any </br>
+agender , </br>
+WIP be patient <33   </br>
+<img src="https://files.catbox.moe/l5f50c.gif" width="150">
