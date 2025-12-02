@@ -12,6 +12,6 @@
 𝄞  ݁˖ ‹ㅤCall me Vanit or Shor  ݁˖  </br>
 </br>
 they / any </br>
-agender , </br>
+genderfluid , </br>
 WIP be patient <33   </br>
 <img src="https://files.catbox.moe/l5f50c.gif" width="150">
