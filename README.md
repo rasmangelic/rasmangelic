@@ -9,7 +9,7 @@
 <img src="https://files.catbox.moe/o3pj6s.gif">
 </br>
  <br><br>
-𝄞  ݁˖ ‹ㅤCall me Vanit or Shor  ݁˖  </br>
+𝄞  ݁˖ ‹ㅤCall me Nero!!  ݁˖  </br>
 </br>
 he / they </br>
 WIP be patient <33   </br>
