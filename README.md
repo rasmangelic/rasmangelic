@@ -13,4 +13,3 @@
 </br>
 he / they </br>
 WIP be patient <33   </br>
-<img src="https://files.catbox.moe/l5f50c.gif" width="150">
