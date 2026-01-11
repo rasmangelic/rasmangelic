@@ -20,7 +20,8 @@
 
 
 <p align="center">
-  𓆩𖣁ㅤ𓏼 he/theyㅤ╋━ㅤtmasc 𓏼ㅤ𖣁𓆪
+  𓆩𖣁ㅤ𓏼 he/theyㅤ╋sixteen━ㅤtmasc 𓏼ㅤ𖣁𓆪
+    <p align="center"> <kbd>$\color{#a5aec2}{\textsf{sharing Dino Classico yume.˚ʚ♡ɞ˚}}$
 </p>
 
   
@@ -29,11 +30,24 @@
 </p>
 
 
+<div align="center">
+<table border="2">
+     <tr>
+       <td>
+         <br>
+           <p align="center">
+         ${\textsf{\color{#ffffff}ㅤ♡ㅤAზσυƚ Nҽɾσㅤ♡ㅤ}}$ 
+<p align="center"> <kbd>I go by Nero or Shor. ૮ ྀིᴗ͈ . ᴗ͈ ྀིაㅤI am a sixteen year old artist.<br>I might be shy at first but interactions are okay! C+H always welcomed<br> unless I play with friends or you are not passing basic dni. </kbd>
+    <p align="center"> <kbd>$\color{#a5aec2}{\textsf{For discord or any other personal contact I have to get to know you first.}}$ </kbd>
 
+    
+  <hr>
 
+    
+<p align="center"> <img src="https://i.ibb.co/Gf9wXZx6/ezgif-com-effects.gif" width=400 height=400>
 
-
-
+   
+</table> 
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=316hnz6wqcykbzx4vt7b4l4lo3ia&redirect=true">
