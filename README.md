@@ -4,4 +4,4 @@ I<sub>will</sub>𓏻die<sup>your</sup>𓏻dau<sub>ghter</sub>
 <img src="https://i.ibb.co/7xd0bd8B/dinodino.gif" width="650" height="350" border="10"/>
 </p>
 <p align="center">
-$${\color{white}NeroㅤorㅤShor}$$
+$${\color{white}‎꒰᧔ㅤNeroㅤorㅤShorㅤ᧓꒱ }$$ 
