@@ -1,7 +1,7 @@
 <p align="center">
 I<sub>will</sub>𓏻die<sup>your</sup>𓏻dau<sub>ghter</sub>
 <p align="center">
-<img src="https://media1.tenor.com/m/01zrJ0Rh3XIAAAAd/dino-classico-nero.gif=80"/>
+<img src="https://i.ibb.co/7xd0bd8B/dinodino.gif" width="650" height="350" border="10"/>
 </p>
 <p align="center">
-WIP
+$${\color{white}NeroㅤorㅤShor}$$
