@@ -21,7 +21,7 @@
 
 <p align="center">
   𓆩𖣁ㅤ𓏼 he/theyㅤ╋sixteen━ㅤtmasc 𓏼ㅤ𖣁𓆪
-    <p align="center"> <kbd>$\color{#a5aec2}{\textsf{sharing Dino Classico yume.˚ʚ♡ɞ˚}}$
+    <p align="center"> <kbd>$\color{#a5aec2}{\textsf{sharingㅤDinoㅤClassicoㅤyumeㅤ.˚ʚ♡ɞ˚}}$
 </p>
 
   
@@ -38,7 +38,7 @@
            <p align="center">
          ${\textsf{\color{#ffffff}ㅤ♡ㅤAზσυƚ Nҽɾσㅤ♡ㅤ}}$ 
 <p align="center"> <kbd>I go by Nero or Shor. ૮ ྀིᴗ͈ . ᴗ͈ ྀིაㅤI am a sixteen year old artist.<br>I might be shy at first but interactions are okay! C+H always welcomed<br> unless I play with friends or you are not passing basic dni. </kbd>
-    <p align="center"> <kbd>$\color{#a5aec2}{\textsf{For discord or any other personal contact I have to get to know you first.}}$ </kbd>
+    <p align="center"> <kbd>$\color{#a5aec2}{\textsf{ForㅤdiscordㅤorㅤanyㅤotherㅤpersonalㅤcontactㅤIㅤhaveㅤtoㅤgetㅤtoㅤknowㅤyouㅤfirst.}}$ </kbd>
 
     
   <hr>
