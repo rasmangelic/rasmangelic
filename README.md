@@ -25,6 +25,6 @@ $${\color{white}‎꒰᧔ㅤNeroㅤorㅤShorㅤ᧓꒱ }$$
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=316hnz6wqcykbzx4vt7b4l4lo3ia&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=316hnz6wqcykbzx4vt7b4l4lo3ia&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=316hnz6wqcykbzx4vt7b4l4lo3ia&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=false">
   </a>
 </p>
