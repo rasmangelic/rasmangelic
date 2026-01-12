@@ -37,7 +37,7 @@
          <br>
            <p align="center">
          ${\textsf{\color{#ffffff}ㅤ♡ㅤAზσυƚ Nҽɾσㅤ♡ㅤ}}$ 
-<p align="center"> <kbd>I go by Nero or Shor. ૮ ྀིᴗ͈ . ᴗ͈ ྀིაㅤI am a seventeen year old artist.<br>I might be shy at first but interactions are okay! C+H always welcomed<br> unless I play with friends or you are not passing basic dni. </kbd>
+<p align="center"> <kbd>I go by Nero or Shor. ૮ ྀིᴗ͈ . ᴗ͈ ྀིაㅤI am a seventeen year old artist.<br>I might be shy at first but interactions are okay! C+H always welcomed<br> unless I play with friends or you are not passing basic dni.<br>ᴅᴏ ɴᴏᴛ ᴄᴏᴘʏ ᴍᴇ, if you will I'm gonna confront you about it. </kbd>
     <p align="center"> <kbd>$\color{#a5aec2}{\textsf{ForㅤdiscordㅤorㅤanyㅤotherㅤpersonalㅤcontactㅤIㅤhaveㅤtoㅤgetㅤtoㅤknowㅤyouㅤfirst.}}$ </kbd>
 
     
