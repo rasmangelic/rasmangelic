@@ -21,7 +21,7 @@
 
 <p align="center">
   𓆩𖣁ㅤ𓏼 he/theyㅤ╋seventeen━ㅤtmasc 𓏼ㅤ𖣁𓆪
-    <p align="center"> <kbd>$\color{#a5aec2}{\textsf{sharingㅤDinoㅤClassicoㅤyumeㅤ.˚ʚ♡ɞ˚}}$
+    
 </p>
 
   
