@@ -20,7 +20,7 @@
 
 
 <p align="center">
-  𓆩𖣁ㅤ𓏼 he/theyㅤ╋seventeen━ㅤtmasc 𓏼ㅤ𖣁𓆪
+  𓆩𖣁ㅤ𓏼 he/himㅤ╋seventeen━ㅤtmasc 𓏼ㅤ𖣁𓆪
     
 </p>
 
